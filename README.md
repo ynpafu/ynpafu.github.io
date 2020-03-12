@@ -1,0 +1,1 @@
+# ynpafu.github.io
